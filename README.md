@@ -171,13 +171,6 @@ Ich lag im Bett, im Zimmer war es stockdunkel, doch ich starrte die Decke an, ic
 </summary>
 
 <img src="https://i.imgur.com/ITOp4F2.png">
-<!---
-Immage:
-- mid
-- no shadow
-- glow
-- 
---->
 
 *Written by Dara (Oktober 2024)*
 
