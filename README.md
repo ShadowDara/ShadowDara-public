@@ -22,6 +22,19 @@ Hey this a current test, nice stuff will be coming here, trust me!
 And here although coming other english stuff and my stories are moving to another place, trust me ^^
 
 
+<details>
+
+<summary>
+
+# Big Trigger Warning - careful!!!
+
+</summary>
+
+<img src="https://i.imgur.com/M3IrURE.png">
+
+</details>
+
+
 ---
 
 <img src="https://i.imgur.com/6ca0a9E.png">
