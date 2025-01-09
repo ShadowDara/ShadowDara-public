@@ -162,6 +162,8 @@ Ich lag im Bett, im Zimmer war es stockdunkel, doch ich starrte die Decke an, ic
 
 </summary>
 
+<img src="https://i.imgur.com/ITOp4F2.png">
+
 *Written by Dara (Oktober 2024)*
 
 *Habt ihr euch schon mal vorgestellt, wie es ist, einen Tag als das andere Geschlecht zu verbringen, wie viel das in eurem Leben ändern würde? Ich habe mir diese Frage bisher noch nie gestellt, bis ich es selbst erlebt habe. Ich finde es bis heute faszinierend, wie schnell sich meine Sichtweise an einem einzigen Tag geändert hat.*
