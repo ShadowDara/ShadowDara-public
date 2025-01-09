@@ -8,7 +8,7 @@
 <summary>
 HELP - (you can press on the little triangle to open the hidden paragragh)
 </summary>
- 
+
 ### Help is coming soon haha (sorry)
 
 </details>
@@ -140,4 +140,3 @@ Ich ging über eine Kuhweide. Rannte davon, rannte weg vor einem Bösewicht. Er 
 </details>
 
 </details>
-
