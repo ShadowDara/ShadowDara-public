@@ -6,7 +6,7 @@
 <details>
 
 <summary>
-HELP - you can press on the little triangle to open the paragragh
+HELP - (you can press on the little triangle to open the hidden paragragh)
 </summary>
  
 ### Help is coming soon haha (sorry)
@@ -22,12 +22,14 @@ And here although coming other english stuff and my stories are moving to anothe
 <details>
 
 <summary>
+
 # My written stories in german
 </summary>
 
 <details>
 
 <summary>
+
 ## Get Out - Warning no happy End - Plaintext Markdown
 </summary>
 
@@ -43,6 +45,7 @@ Ich hatte mein Script vorbereitet, meine Notizen, sie befanden sich bereits geö
 <details>
 
 <summary>
+
 ## Dark Story - Plaintext Markdown
 </summary>
 
@@ -110,6 +113,7 @@ Ich lag im Bett, im Zimmer war es stockdunkel, doch ich starrte die Decke an, ic
 <details>
 
 <summary>
+
 ## One Day as a Girl - Plaintext Markdown
 </summary>
 
@@ -125,6 +129,7 @@ Der Wecker klingelte früh, ich wollte noch nicht aufstehen, wollte weiter schla
 <details>
 
 <summary>
+
 ## Dream - Speedboot XD - Plaintext - Markdown
 </summary>
 
