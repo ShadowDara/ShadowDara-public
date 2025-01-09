@@ -27,6 +27,33 @@ And here although coming other english stuff and my stories are moving to anothe
 
 </summary>
 
+<details>
+
+<!--- 
+Ideas:
+- Maincharacter: Mädchen Chloe, 17 Jahre alt
+- kleiner Bruder Jay
+- Timtravel story
+- Physik
+- Experiement läuft schief
+- Winter
+
+»«
+--->
+
+<summary>
+
+## Das Experiement
+
+</summary>
+
+### Kapitel I
+
+Draußen war es Eiskalt und es schneite. Es hatte die ganze Nacht geschneit, die ganze Nachbarschaft war weiß. Chloe stand am Fenster und schaute raus. Sie liebte den Winter, sie liebte den Schnee. »Jay, komm mal her, schau mal wie es schneit«, rief sie. Ihr kleiner Bruder kam angerant, er strahlte und jubbelte als er aus dem Fenster sah. Die beiden Geschwister hätten so gerne im Schnee gespielt, doch sie mussten beide in die Schule. Leider. Chloe packte ihre restlichen Sachen zusammen und verließ die Wohnung. »Tschüss Jay, Tschüss Mum.«, sie musste nur einen kurzen Weg von zwei min bis zur Bushaltestelle. »Hey Kleines, wie gehts dir?«, Chloe stöhnte und rollte mit den Augen. Sie hasste diesen Jungen. »Lass mich in Ruhe, Jonas!« »Bist du etwa schlecht gelaunt kleines?«
+
+Chloe lächelte dem Busfahrer zu, als sie in den Bus stieg. Es noch nicht viele Passagiere im Bus, sie ging durch den Gang und suchte sich einen Platz fast ganz hinten. Durch das Busfenster beobachte Chloe die verschneite Landschaft auf dem Schulweg, die Straßem waren frei geräumt, aber die Landschaft war komplett weiß und verschneit. »Hoffentlich bleibt der Schnee bis Weihnachten.«, »Ja, das wäre so schön wenn der Schnee da noch da wäre.«, kreischten zwei kleine Mädchen, eine Sitzreihe vor Chloe. Die kleinere der beiden Mädchen trugt eine rote Bommelmütze und dazu eine leuchtent hell pinke Winterjacke, die andere trug jediglich eine blaue Skijacke. »Müssen die so schreien?« dachte sich Chloe, sie hatte nichts gegen kleine Kinder, aber das Gekreischte verursachte bei ihr Kopfschmerzen.
+
+</details>
 
 
 <details>
