@@ -1,3 +1,11 @@
+<!---
+
+If some of the pictures didnt work anymore, here is a backup:
+
+https://github.com/ShadowDara/ShadowDara-prvt-archive/tree/main/picture-backup
+
+--->
+
 <img src="https://i.imgur.com/tT2bCuR.jpeg">
 
 ---
