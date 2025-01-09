@@ -4,6 +4,8 @@
 
 Hey this a current test, nice stuff will be coming here, trust me!
 
+And here although coming other english stuff and my stories are moving to another place, trust me ^^
+
 # My written stories in german
 
 ## Get Out - Warning no happy End - Plaintext Markdown
