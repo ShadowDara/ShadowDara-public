@@ -539,3 +539,5 @@ Doch von Emma fehlte weiterhin jede Spur.
 # PS
 
 Sorry for the 2012 Minecraft Font D:
+
+I made the font btw with <a href="https://textcraft.net">https://textcraft.net<a>
