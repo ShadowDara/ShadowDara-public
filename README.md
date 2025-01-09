@@ -205,6 +205,25 @@ Ich ging über eine Kuhweide. Rannte davon, rannte weg vor einem Bösewicht. Er 
 
 <summary>
 
+## A Fortnite Story
+
+</summary>
+
+### Season 1
+
+»Wo bin ich?« fragte ich mich, ich öffnete langsam meine Augen. Es war noch alles verschwommen, ich hatte meine Augen wohl sehr lange geschlossen. Es dauert eine Weile bis ich endlich klar sehen konnte, also versuchte ich mich zu erinnern. »Wer war ich und was mache hier?«, endlich fingen meine Augen wieder an zu funktionieren. Ich war angeschnallt, ich saß in einem blauen Bus. Einem fliegenden blauen Bus, mir kam der Aspekt das Bus flog direkt komisch vor, obwohl ich überhaupt keine Ahnung hatte, wieso. Ich saß direkt am Fenster, neben mir war ein freier Platz. Im Bus saßen noch viele andere Personen, ich würde so ca. auf 100 schätzen. Ich sah mich um, die ganzen anderen Mitinsassen sahen alle ganz verschieden aus, aber irgendwie ähnelten sie sich auch zugleich und da ... was? Da war eine Banane. Eine Banane mit Armen und Beinen. Ich hatte zwar meine Erinnerungen verloren, doch eine lebende Banane kam mir trotzdem noch seltsam vor. Ich setzte mich wieder auf meinen Platz und schaute aus Fenster. Der Bus flog auf eine große Insel zu. Die Inseli war eine komplett grüne Landschaft, im Westen der Insel waren vereinzelte Berge. Etwas darüber im Nordwesten lagt eine kleine Stadt mit einem großen Fußballfeld in der Mitte der Berge. Etwas nordwestlich von der Mitte der Insel lag ein großer See, mit einer kleinen Insel mit einen kleinen darauf in der Mitte des Sees. Nordöstlich des Sees befand sich eine kleine Farm mit mehreren Feldern, weiter östlich war ein Wal … Plötzlich riss mich ein lautes Geräusch aus meinen Gedanken, ich schreckte auf und hörte auf die Insel zu beobachten. Der Bus hupte noch einmal laut. Ein Paar der Passagiere drehen sich um und gingen zum hinteren Teil des Busses, wo dich bereits die Türen geöffnet hatten.
+
+### Credits
+
+Quelle Fortnite Map: <a href="https://fortnite.gg/map-evolution">https://fortnite.gg/map-evolution</a> (Map Evolution: 1.6.0)
+
+</details>
+
+
+<details>
+
+<summary>
+
 ## Die Siebte Welt
 
 </summary>
