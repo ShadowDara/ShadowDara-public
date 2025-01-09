@@ -1,3 +1,5 @@
+<img src="https://i.imgur.com/tT2bCuR.jpeg">
+
 # ShadowDara-public
 
 Hey this a current test, nice stuff will be coming here, trust me!
