@@ -22,11 +22,15 @@ Hey this a current test, nice stuff will be coming here, trust me!
 And here although coming other english stuff and my stories are moving to another place, trust me ^^
 
 
+---
+
+<img src="https://i.imgur.com/6ca0a9E.png">
+
 <details>
 
 <summary>
 
-# My written stories in german
+# My own written stories in german
 
 </summary>
 
