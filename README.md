@@ -163,6 +163,33 @@ Der Wecker klingelte früh, ich wollte noch nicht aufstehen, wollte weiter schla
 
 <summary>
 
+## Anfang der Dunkelheit
+
+</summary>
+
+Nachdem die Skelette den geheimnisvollen Golem in einem herausfordernden Kampf besiegt haben, verdunkelte sich der Himmel. Es war so, als wäre der Golem der Beschützer des Lichts gewesen und da er besiegt wurde, verdunkelte sich der Himmel. Es zogen aus dem Nichts graue Wolken auf.
+<br>
+Direkt nach dem Sieg über den Golem machten sich die beiden düsteren Skelett-Ritter auf, um zu verschwinden. Auf ihrem Weg hörte man weit das Laute klappern ihrer Knochen und jeder, der es hörte, lief es kalt den Rücken hinunter. Sie ließen den silbernen, mystischen Golem mit den großen Fäusten zurück. Kaum waren die beiden düsteren Knochenritter in den Schatten getreten, verschwanden sie auch schon. Niemand, der diesen Kampf nicht gesehen hatte, konnte jemals nachvollziehen, dass sie jemals hier waren. Den Golem ließen sie zurück und er lag immer noch da, wo er besiegt wurde. Von seinem bloßen Aussehen konnte man nicht nachvollziehen, für was er geschaffen war oder warum ihn die Skelettritter so plötzlich angriffen. Die einzige Frage die man sich bei dem Kampf stellt war nur: Wird es Konsequenzen haben?
+<br>
+<br>
+In der fünften Welt wurde es dunkel, der Strom fiel aus. Sogar die Sonne verschwand hinter etwas, etwas das, das ganze Sonnenlicht auf saugte. Die Lichtstrahlen änderten sich einfach, im Flug  ihre Richtung. Das einzige, was noch Licht erzeugte, waren die Strahlen des Vollmondes.
+<br>
+<br>
+Es herrschte ein riesiges Chaos, überall war Panik. Keiner wusste was geschah und auch keiner wusste, wer dafür verantwortlich war.
+<br>
+<br>
+Selbst im tiefsten aller Kerker spürte Nisauri die Präsenz der Dunkelheit. Ein riesiger Kerker, ein Kerker für eine Dämonin, um dort auf einen Herausforder zu warten. Nisauri hatte schon viele Ritter grausam besiegt, die versucht hatten, jenes abscheuliche Monster des Kerkers zu besiegen. Doch jetzt war nicht die Zeit dazu, in einem Kerker zu verweilen, es war auch nicht die Zeit dazu, um Möchtegern Helden mit Dämonenfeuer zu verbrennen. Die Welt in Gefahr, ihre Welt war in Gefahr, Nisauri merkte es, sie war zwar eine grausame Dämonin, aber wollte trotzdem nicht zulassen, dass ihre Welt untergeht. Chaos mochte Nisauri, dagegen hatte sie nichts, leider aber werde diese Welt komplett zerstört sein und nicht nur im Chaos ausbrechen, Chaos herrschte jetzt schon. Es war Zeit an die Oberfläche zurückzukehren, es ist schon Ewigkeiten her, dass Nisauri an der Oberfläche der vierten Welt war. Die vierte Welt war die Welt des Todes und Dunkelheit. Es war immer dunkel in der vierten Welt, aber diese Dunkelheit war anders, sie war dunkler, bedrohlicher, gefährlicher, selbst Nisauri hatte sogar ein bisschen Angst in der Dunkelheit. Jeder ausgewachsene Dämon hatte natürlich so viel Stolz, dass er das natürlich nicht zugab, aber selbst verleugnen konnte er es sich auch nicht. Nisauri bewegte sich langsam aus dem Kerker heraus, im Kerker war es sehr dunkel, aber kein Vergleich zur neu aufgekommenen, gruseligen Dunkelheit, doch die beiden schwarzen, brennenden Hörner, die aus Nisauri’s Stirn kamen, leuchteten ihr den Weg durch die Dunkelheit. Die Kerker Decke war ungefähr 8 Meter hoch, doch der Kerker war immer noch zu klein, damit die 5 Meter große Dämonin ihre Flügel, die ihr aus dem Rücken wuchsen, benutzen konnte. Auf dem Weg nach oben, zur Oberwelt kam Nisauri oft an verbrannten Ritterrüstungen und  Schädeln vorbei, alles waren die Helden einer vergangen Zeit, die sich überschätzt hatten. Als Dämonin beherrschte Nisauri die Feuermagie, so konnte sie vor allem Feuer speien und auch andere feurige Dinge. Inzwischen war sie fast zum Ausgang zur Oberwelt gekommen, Nisauri freute sich schon, sie hoffte in der langen Zeit machten sich über der Erde  Überraschungen der Evolution. Der Eingang sah genauso aus wie damals, Nisauri erinnerte sich, es war eine schöne Zeit gewesen. Sie hätte nicht gedacht, dass sie diesen Kerker jemals wieder verlassen würde. Um nicht so aufzufallen und aufsehen zu erregen, nahm sie ihre menschliche Gestalt an. Sie schrumpfte von ihren 5 Meter auf kleine 1,60 Meter. Sie war eine kleine Dämonin, normale Dämonen waren schon ungefähr auf der Größe von 8 Metern, genau genommen war Nisauri als Dämon eigentlich 4,8 Meter. Die Menschliche Gestalt eines Dämons war immer genau ein ⅓ seiner Dämonengestalt. Nisauri hasste den Prozess des Schrumpfens, ihre Flügel verschwanden in ihrem Rücken, ihr ganzer Körper schrumpfte auf 1,60 Meter, das einzige was noch verriet, das sie ein Dämon war, waren nur die beiden schwarzen Hörner die rechts und links aus ihrer Stirn wuchsen, nur brannten sie jetzt nicht mehr. Es war noch lange bevor sie in den Kerker gegangen war seit dem Nisauri das letzte Mal in Menschengestalt war. Sie fühlte sich schwach, so verletzlich. Sie hasste dieses Gefühl, aber es war unvermeidbar, um diese Welt zu retten. Nisauri staunte, die Oberfläche war ganz anders als damals, als sie zuletzt an der Oberfläche war. Damals war das Land um den Eingang grau. Die Landschaft besteht aus Matz zwischen abgebranntem Gras, dazwischen standen immer wieder abgebrannte Bäume. Die Landschaft war schön, schrecklich erbärmlich. Nisauri mochte diese schlammige, verbrannte Brachlandschaft. Sie erstreckte sich bis dahin, wo sie in den Horizont überging. An der Landschaft hatte sich über die Tausend Jahre, in denen Nisauri unter der Erde war, nichts geändert. Nisauri musste in die Stadt der Entstehung. Sie war sehr weit weg. Mitten in der verbrannten Brachlandschaft erstreckte sich der alte, schmale Pfad zur Stadt der Entstehung. Es war ein sehr weiter Weg für Nisauri, zu Fuß, in diesem Gebiet war es selbst für Dämonen gefährlich zu fliegen. In den höheren Ebenen der Luft herrschten stürmische Winde über den Himmel.
+<br>
+<br>
+Nisauri folgte dem langen, kurvigen Pfad. Er schlängelte sich durch die weite Gegend.
+
+</details>
+
+
+<details>
+
+<summary>
+
 ## Dream - Speedboot XD - Plaintext - Markdown
 
 </summary>
