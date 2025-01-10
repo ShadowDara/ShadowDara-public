@@ -32,6 +32,20 @@ And here although coming other english stuff and my stories are moving to anothe
 
 ---
 
+<img src="https://i.imgur.com/ERzW9mv.png" border="0">
+
+<details>
+
+<summary><h1>The Blog</h1></summary>
+
+<h2>01.10.2024</h2>
+<p>Chat, i discovered something, never put a basecap in the washing maschine, never do that. I did it and i am regreting it now :((</p>
+
+</details>
+
+
+---
+
 <img src="https://i.imgur.com/6ca0a9E.png">
 
 <details>
