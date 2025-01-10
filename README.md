@@ -16,14 +16,13 @@ https://github.com/ShadowDara/ShadowDara-prvt-archive/tree/main/picture-backup
 
 <details>
 
-<summary>
-HELP - (you can press on the little triangle to open the hidden paragragh)
-</summary>
+<summary><h3>HELP - (you can press on the little triangle to open the hidden paragragh)</h3></summary>
 
-### Help is coming soon haha (sorry)
+<h3>Help is coming soon haha (sorry)</h3>
 
 </details>
 
+---
 
 Hey this a current test, nice stuff will be coming here, trust me!
 
