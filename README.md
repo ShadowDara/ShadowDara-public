@@ -28,6 +28,8 @@ Hey this a current test, nice stuff will be coming here, trust me!
 
 And here although coming other english stuff and my stories are moving to another place, trust me ^^
 
+At the moment i really just dont know what i should put here, so ... idk
+
 
 ---
 
