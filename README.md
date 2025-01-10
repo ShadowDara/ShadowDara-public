@@ -558,6 +558,20 @@ Doch von Emma fehlte weiterhin jede Spur.
 </details>
 
 
+<details>
+
+<summary><h2>The Prolog</h2></summary>
+<p>Nachdem die Skelette den geheimnisvollen Golem in einem herausfordenden Kampf besiegt haben, verdunkelte sich der Himmel. Es war so als wäre der Golem der Beschützer des Lichts gewesen und da er Fort war wurde es dunkel und grau.</p>
+<p>Einige Jahre später in der Stadt die auf dem Platz gebaut wurde wo der damalig Kampf stantfand. In dieser Stadt lebte Sammyyy. Er war ein normaler Junge wie alle anderen, er spielte Computer spiele und ging auch in die Schule, wie andere Kinder.</p>
+<p>Es war der Erste Tag der Sommerferien und Sammyyy langweilte sich, seine Freunde wahren alle schon vereist und Sammyyy wusste einfach nicht was er tun sollte. Es wahr 10.00 Uhr morgens was bedeutete das der Tag noch ewig gehen wird. Schlussendlich kam ihn die Idee. "Ich kann doch zu meinen Verwanten auf den Bauernhof reisen." dachte er sich und fing sofort an seine Taschen zu packen. Er nahm alles nötige mit, seine Zahnbürste und Kleindung. Als er endlich fertig wahr mit packen und bereit wahr zum gehen, goss er noch Planzen und machte das Licht aus. Als er dann endlich aufbrach, traf er eine Bekannte Nachbarin. Sammyy versuchte sich klein zumachen, damit sie ihn nicht nicht erkannte, was aber nichts nützte. Sie kam her um fing ein Gespräch mit ihm an</p>
+<p>"Hallo, wie gehts es dir denn?  Wie findest du das Wetter?  Ich finde es komisch. Ich habe Irgendwie das Gefühl das nachher regnet. "</p>
+<p>"Also Ich habe jetzt keine Zeit un ... " sagte er um auszuweichen um in Ruhe gelassen zu werden, aber sie redete einfach weiter als hätte sie ihn nicht zugehört. Weilm ihm gar nichts mehr einviel um zu entkommen drehte er sich einfach um und in Richtung Bahnhof. Auf ein Mal fing es an zuregnen. </p>
+<p>Sammyyy wunderte sich: "Sie hatte recht, es regnet, ohne Wolken am Himmel. Das Wetter ist echt komisch in letzter Zeit. Hätte ich doch nur meine Regenjacke mitgenommen. Meine dünne Pulli Kaputze ist schnell durchnässt."</p>
+<p>Zum Bahnhof war es nicht mehr weit.</p>
+
+</details>
+
+
 </details>
 
 
