@@ -16,11 +16,13 @@ https://github.com/ShadowDara/ShadowDara-prvt-archive/tree/main/picture-backup
 
 <details>
 
-<summary><h3>HELP - (you can press on a heading with a little before triangle to open a hidden paragragh)</h3></summary>
+<summary><h3>HELP</h3></summary>
 
 <h3>Help is coming soon haha (sorry)</h3>
 
 </details>
+
+**(you can press on a heading with a little before triangle to open a hidden paragragh)**
 
 ---
 
