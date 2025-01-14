@@ -14,9 +14,6 @@ https://github.com/ShadowDara/ShadowDara-prvt-archive/tree/main/picture-backup
 
 # ShadowDara-public
 
-
----
-
 # PS
 
 Sorry for the 2012 Minecraft Font D:
