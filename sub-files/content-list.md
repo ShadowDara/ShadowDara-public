@@ -2,6 +2,8 @@
 
 # Sub Pages
 
+## [Tech Tricks](sub-pages/tech-tricks.md)
+
 # Archived Pages
 
 ## [Ninjago Episodes](archived-pages/ninjago-episodes.md)
