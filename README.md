@@ -1,5 +1,3 @@
-# This Website will move <a href="https://github.com/ShadowDara/ShadowDara-public/wiki">here</a> soon
-
 <!---
 
 If some of the pictures didnt work anymore, here is a backup:
