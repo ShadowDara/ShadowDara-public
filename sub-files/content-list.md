@@ -2,7 +2,7 @@
 
 # Sub Pages
 
-### [Deutscher Bereich](sub-pages/german_main_page.md)
+### [Deutscher Website Bereich](sub-pages/german_main_page.md)
 ### [Ninjago Episodes](archived-pages/ninjago-episodes.md)
 ### [old](sub-pages/old.md)
 ### [One Day as a Girl - Story](archived-pages/one_day_as_a_girl.md)
