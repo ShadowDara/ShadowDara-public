@@ -1,3 +1,5 @@
+# This Website will move <a href="https://github.com/ShadowDara/ShadowDara-public/wiki">here</a> soon
+
 <!---
 
 If some of the pictures didnt work anymore, here is a backup:
@@ -563,7 +565,7 @@ Doch von Emma fehlte weiterhin jede Spur.
 <details>
 
 <summary><h2>The Prolog</h2></summary>
-<b><i>Content Warining - Story is not finished</i></b>
+<b><i>Content Warining - Story is not finished</i></b><br>
 <p>Nachdem die Skelette den geheimnisvollen Golem in einem herausfordenden Kampf besiegt haben, verdunkelte sich der Himmel. Es war so als wäre der Golem der Beschützer des Lichts gewesen und da er Fort war wurde es dunkel und grau.</p>
 <p>Einige Jahre später in der Stadt die auf dem Platz gebaut wurde wo der damalig Kampf stantfand. In dieser Stadt lebte Sammyyy. Er war ein normaler Junge wie alle anderen, er spielte Computer spiele und ging auch in die Schule, wie andere Kinder.</p>
 <p>Es war der Erste Tag der Sommerferien und Sammyyy langweilte sich, seine Freunde wahren alle schon vereist und Sammyyy wusste einfach nicht was er tun sollte. Es wahr 10.00 Uhr morgens was bedeutete das der Tag noch ewig gehen wird. Schlussendlich kam ihn die Idee. "Ich kann doch zu meinen Verwanten auf den Bauernhof reisen." dachte er sich und fing sofort an seine Taschen zu packen. Er nahm alles nötige mit, seine Zahnbürste und Kleindung. Als er endlich fertig wahr mit packen und bereit wahr zum gehen, goss er noch Planzen und machte das Licht aus. Als er dann endlich aufbrach, traf er eine Bekannte Nachbarin. Sammyy versuchte sich klein zumachen, damit sie ihn nicht nicht erkannte, was aber nichts nützte. Sie kam her um fing ein Gespräch mit ihm an</p>
