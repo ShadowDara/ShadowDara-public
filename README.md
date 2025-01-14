@@ -8,6 +8,8 @@
 
 # [Content List](sub-files/content-list.md)
 
+# [Deutscher Bereich](subfiles/sub-pages/german_main_page.md)
+
 # PS
 
 ---
