@@ -19,7 +19,3 @@
 ---
 
 <img src="https://i.imgur.com/ITOp4F2.png">
-
----
-
-*Last updated this page on 14.01.2024*
