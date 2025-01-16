@@ -2,7 +2,6 @@
 
 # Sub Pages
 
-### [Deutscher Website Bereich](sub-pages/german_main_page.md)
 ### [old](sub-pages/old.md)
 
 # [Picture Index](picture-index.md)
