@@ -1,24 +1,3 @@
-<details>
-
-<summary><h3>HELP</h3></summary>
-
-<h3>Help is coming soon haha (sorry)</h3>
-
-</details>
-
-**(you can press on a heading with a little before triangle to open a hidden paragragh)**
-
----
-
-Hey this a current test, nice stuff will be coming here, trust me!
-
-And here although coming other english stuff and my stories are moving to another place, trust me ^^
-
-At the moment i really just dont know what i should put here, so ... idk
-
-
----
-
 <img src="https://i.imgur.com/ERzW9mv.png" border="0">
 
 <details>
@@ -520,7 +499,3 @@ Doch von Emma fehlte weiterhin jede Spur.
 
 
 </details>
-
----
-
-*Last updated this page on 14.01.2024*
